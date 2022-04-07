@@ -17,7 +17,7 @@ https://www.prweb.com/releases/2012/5/prweb9540161.htm
 https://www.prweb.com/releases/2011/12/prweb9069400.htm
 
 <h2>Blog Posts for Clients:</h2>
-Dalworth Restoration Articles:
+<h2>Dalworth Restoration Articles:</h2>
 https://drive.google.com/drive/folders/1SdhOPkSUcpDWxgK3F_UaYuo7V-7D94c0?usp=sharing
 
 <h2>Dalworth Rug Cleaning Articles:</h2>
