@@ -1,12 +1,12 @@
 
 <h1>Content Portfolio</h1>
 <h2><i>Ezine Articles:</i></h2>
-https://ezinearticles.com/?Water-Damage-Restoration-Companies&id=3862980 
+https://ezinearticles.com/?Water-Damage-Restoration-Companies&id=3862980 <br></br>
 <br>https://ezinearticles.com/?Flood-Damage-Insurance-Claims&id=4351395</br>
 <br>https://ezinearticles.com/?Oriental-Rug-Repair-and-Maintenance&id=3692618</br>
 <br>https://ezinearticles.com/?Oriental-Rug-Cleaning&id=3692086</br>
 <br>https://ezinearticles.com/?Oriental-Rug-Cleaning-Tips---How-to-Keep-Your-Oriental-Rug-Clean&id=3692321</br>
-https://ezinearticles.com/?Oriental-Rug-Cleaning---Choosing-the-Right-Professional-Area-Rug-Cleaning-Company&id=3424256
+<br>://ezinearticles.com/?Oriental-Rug-Cleaning---Choosing-the-Right-Professional-Area-Rug-Cleaning-Company&id=3424256</br>
 
 <h2><i>PR Web Press Releases:</i></h2>
 https://www.prweb.com/releases/2010dallaswaterdamage/10waterdamagerestoration/prweb4631034.htm
