@@ -10,6 +10,8 @@
 "> Oriental Rug Cleaning - Choosing the Right Professional Area Rug Cleaning Company</a> 
 
 <h2><i>PR Web Press Releases:</i></h2>
+<a href="https://www.prweb.com/releases/2010dallaswaterdamage/10waterdamagerestoration/prweb4631034.htm
+"> Water Damage Restoration Companies</a> 
 https://www.prweb.com/releases/2010dallaswaterdamage/10waterdamagerestoration/prweb4631034.htm
 https://www.prweb.com/releases/2011/8/prweb8696813.htm
 http://www.prweb.com/releases/2012/3/prweb9307504.htm
