@@ -11,7 +11,7 @@
 
 <h2><i>PR Web Press Releases:</i></h2>
 <a href="https://www.prweb.com/releases/2010dallaswaterdamage/10waterdamagerestoration/prweb4631034.htm
-"> Water Damage Restoration Companies</a> 
+"> Dalworth Restoration Demonstrates Exceptional Dallas Fort Worth Water and Fire Damage Restoration Service</a> 
 <br><a href="https://www.prweb.com/releases/2011/8/prweb8696813.htm"> Dalworth Restoration Receives Excellence in Service Award for Superior Dallas Fort Worth Fire and Water Restoration Services</a> 
 
 
