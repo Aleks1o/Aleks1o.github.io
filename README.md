@@ -7,7 +7,7 @@
 <br><a href="https://ezinearticles.com/?Oriental-Rug-Cleaning&id=3692086"> Oriental Rug Cleaning</a> 
 <br><a href="https://ezinearticles.com/?Oriental-Rug-Cleaning-Tips---How-to-Keep-Your-Oriental-Rug-Clean&id=3692321"> Oriental Rug Cleaning Tips - How to Keep Your Oriental Rug Clean</a> 
 <br><a href="https://ezinearticles.com/?Oriental-Rug-Cleaning---Choosing-the-Right-Professional-Area-Rug-Cleaning-Company&id=3424256
-"> Choosing the Right Professional Area Rug Cleaning Company</a> 
+"> Oriental Rug Cleaning - Choosing the Right Professional Area Rug Cleaning Company</a> 
 
 <h2><i>PR Web Press Releases:</i></h2>
 https://www.prweb.com/releases/2010dallaswaterdamage/10waterdamagerestoration/prweb4631034.htm
