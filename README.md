@@ -3,7 +3,7 @@
 <h2><i>Ezine Articles:</i></h2>
 <a href="https://ezinearticles.com/?Water-Damage-Restoration-Companies&id=3862980"> Water Damage Restoration Companies</a> 
 <br><a href="https://ezinearticles.com/?Flood-Damage-Insurance-Claims&id=4351395"> Flood Damage Insurance Claims</a> 
-<br><a href="https://ezinearticles.com/?Oriental-Rug-Repair-and-Maintenance&id=3692618"> Oriental Rug Cleaning and Maintenance</a> 
+<br><a href="https://ezinearticles.com/?Oriental-Rug-Repair-and-Maintenance&id=3692618"> Oriental Rug Repair and Maintenance</a> 
 <br>https://ezinearticles.com/?Oriental-Rug-Repair-and-Maintenance&id=3692618
 <br>https://ezinearticles.com/?Oriental-Rug-Cleaning&id=3692086
 <br>https://ezinearticles.com/?Oriental-Rug-Cleaning-Tips---How-to-Keep-Your-Oriental-Rug-Clean&id=3692321
