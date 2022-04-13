@@ -16,7 +16,7 @@
 <br><a href="http://www.prweb.com/releases/2012/8/prweb9856797.htm"> Disaster Response Teams to Provide Hurricane Water Damage Restoration </a> 
 <br><a href="http://www.prweb.com/releases/2012/3/prweb9307504.htm"> Dalworth Rug Cleaning on Top 10 Quality Service List </a> 
 <br><a href="https://www.prweb.com/releases/2012/5/prweb9540161.htm"> Dalworth Restoration Hosts Crawl Space Repair and Basement Waterproofing Partner </a> 
-<br><a href="https://www.prweb.com/releases/2011/12/prweb9069400.htm"> ggg</a> 
+<br><a href="https://www.prweb.com/releases/2011/12/prweb9069400.htm"> Dalworth Rug Cleaning Receives 2011 Excellence in Service Award </a> 
 
 
 
